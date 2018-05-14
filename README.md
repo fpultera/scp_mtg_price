@@ -1,1 +1,1 @@
-Get price StarCitiGames for the ID card
+Get price StarCityGames for the ID card
